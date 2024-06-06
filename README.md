@@ -11,10 +11,12 @@
     3. Goals
     4. How to participate
     5. How to donate
-    6. How to volunteer
+    6. How to volunteer/Number of volunteers
     7. Sponsorship opportunities
-    8. Contact information
-    9. FAQs
+    8. Supplies needed
+    9. Number of people
+    10. Contact information
+    11. FAQs
 
 # Introduction
 
@@ -31,7 +33,7 @@ Our mission is to bring about filfillment of dreams, empower lives and to to sho
 #Show to the people the imprtance of giving.
 #Show that sharing is caring.
 
-# How to Particopate
+# How to Participate
 
 #Participating ic the CIRCLE OF HOPE is easy and rewarding! Here are a few ways you cane get involved:
 
@@ -47,9 +49,9 @@ Your generous donations help us achieve our goals and make a significant impact.
 #Mail check: Make checks payable to the CIRCLE OF HOPE and send to <cycleofhope2023@gmail.com
 #In person: Drop off donations at our office or during any of our events.
 
-# How to Volunteer
+# How to Volunteer/Number of volunteers
 
-#Volunteers are the backbone of our fundraiser. We offer a variety of volunteer opportunities to fit your interests and availability:
+#Volunteers are the backbone of our fundraiser and we would need 30 volunteers per opportunity. We offer a variety of volunteer opportunities to fit your interests and availability:
 
 #Event Volunteers: Helps us setup, run, and break down events.
 #Administartive Support: Assists with clerical tasks, outreach, and more.
@@ -66,6 +68,15 @@ Your generous donations help us achieve our goals and make a significant impact.
 #Bronze sponsor: Trips/Education/Business
 
 #For more information on sponsorship packages and how to become a sponsor, please contact <hoopesponsorshipprog@gamil.con
+
+# Supplies needed
+
+#In the circle of hope we would accept any kind of product becouse each product is valuable in its own way. But mostly we would need you to really on the besic needs that a person may need in his/her life.
+#The supplies may be received during any of our events.
+
+# Number of people
+
+#In accordance to the event the will be held on July there will be people that would be required to get involved in the collections of the things people will contribute in the fundraiser meeting. Atleast 25 people will be needed for the action that day.
 
 # Contact information
 
