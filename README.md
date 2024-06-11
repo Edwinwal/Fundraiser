@@ -28,8 +28,8 @@ Our mission is to bring about filfillment of dreams, empower lives and to to sho
 
 # Goals
 
-#Spread love and care to all.
-#Bring about unity among everyone.
+#Raise enough money to help others
+#Wish for a great turn up during the meeting
 #Show to the people the imprtance of giving.
 #Show that sharing is caring.
 
